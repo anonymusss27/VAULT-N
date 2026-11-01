@@ -1,0 +1,2 @@
+[[Praxis]]
+no euphemistic language
