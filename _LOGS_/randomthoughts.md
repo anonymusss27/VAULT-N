@@ -3,6 +3,27 @@ We live in a world full of fake people who work fake jobs to make fake made-up m
 
 True gender equality cannot mean erasing one half of the population from the conversation or treating male challenges and deaths as less urgent.
 
+sticks and stones may break my bones, but there will always be something to offend a feminist.
+
+The amount of assaults committed by women that aren't reported , massive numbers as men either brush it as they are taught to do by society, or embarrassed to report
+
+Never let anyone get a reaction out of you. Any person nowadays can manufacture a version of events that paints you the villain by simply highlighting your emotionally charged response
+
+We’ve come to the point where I think it needs to be illegal to get pregnant without a license and psych evaluation
+
+Men are good enough for you to sleep with...but then you will do everything in your power to not give birth to one.
+
+1) Μην εγκαταλειπεις τα ονειρα σου για χαρη του, μια πραγματικη συντροφος δεν θα σε κρατησει πισω, θα σε ενθαρρυνει να προχωρησεις
+2) Μην πληρωνεις τους λογαριασμούς της για να αποδείξεις την αγάπη σου. Η αγάπη δεν είναι οικονομική θυσία. Αν δεν είναι δίπλα σου, σε εκμεταλλέυεται
+3) Μην ικετεύεις για τον σεβασμό που σου αξίζει. Τη στιγμή που ικετεύεις, μειώνεις την αξία σου. Τη στιγμή που φεύγεις, ορίζεις εσύ τα όρια σου.
+4) Μην ανταγωνίζεσαι αλλους άντρες για την προσοχη της, αν δεν επιλεγει μονο εσενα...δεν σε επιλεγει καθολου
+5) Μη σιωπας για να διατηρησεις την ηρεμια. Ο καταλληλος ανθρωπος σε ακουει, δεν σε απορρίπτει.
+6) Μην μικραινεις τον εαυτο σου για να νιωθει εκεινη ανετα, ο καταλληλος ανθρωπος δεν απειλειται απο τη δυναμη σου...εμπνεεται απο αυτην
+7) Μην αγνοεις τα καμπανακια κινδυνου ελπιζοντας οτι θα αλλαξει. Ό,τι ανέχεσαι, το διδάσκεις. Και τα μοτίβα δεν διορθώνονται από μόνα τους - επαναλαμβάνονται.
+8) Μην εξηγεις υπερβολικα την αξία σου. Αν δεν βλέπει την αξία σου...όσο κι αν εξηγήσεις, δεν θα την κανεις να τη δει.
+9) Μη συμβιβάζεσαι με μιση αγαπη. Η συγχυση δεν ειναι αγαπη. Η ασυνεπεια δεν ειναι αγαπη. Η αληθινή αγαπη είναι ξεκάθαρη, σταθερη και συνειδητη.
+10) Μην χανεις τον εαυτο σου προσπαθώντας να την κερδίσεις. Αν πρέπει να γίνεις κάποιος άλλος για να σε αγαπάει...αυτό δεν είναι αγάπη, είναι να εγκαταλείπεις τον εαυτό σου.
+
 They lie to you GI.
 You know you cannot win this war,
 noone will.

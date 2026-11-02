@@ -36,10 +36,11 @@ Don't EVER put anything in a text message that you would be ashamed to see in pu
 One more thing: cover your ears. Ears are one of the most unique things that can identify you as you. Almost everyone has ears different enough for easy identification.
 
 Self-defense :
-1) OTF Knife
-2) Steel Spike Kubaton
-3) (Expandable) Steel baton
-4) Taser / Stun Gun
+1) Pen Knife
+2) OTF Knife
+3) Steel Spike Kubaton
+4) (Expandable) Steel baton
+5) Taser / Stun Gun
 
 do not login using your real IP (under any circuimstance)
 
