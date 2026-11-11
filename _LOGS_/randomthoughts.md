@@ -1,9 +1,228 @@
-Q
+Misandry is increasingly visible, and men need to be proactive about recognizing it rather than waiting until it affects them personally. Learn to identify disrespect, double standards, and narratives that diminish men, and have the discernment to separate legitimate criticism from hostility. Strengthen your character, know your worth, establish boundaries, and be intentional about the people and environments you allow into your life. Awareness gives you options; preparation gives you power. Don’t wait to respond to what you could have recognized and addressed early.
+
+Entire female-led movements are aimed at legalizing at-will third term abortions BUT GOD FORBIG cortical labs builds a revolutionary technology that uses DEAD steam cells to run binary software.
+
+a country that can’t attract enough volunteers to defend it is probably not worth defending.
+
+They ask for forgiveness when they still need to use you 🙏 stay aware
+
+We're all about making our girls all the more bitchy, assertive & disrespectful while conditioning boys to make way for others to shine. Isn't it about time we taught some confidence to boys too? Especially when their bodies are literally built for that...
+
+If u have to even ask, just leave her. Im not here to negotiate. Do it or stay with them. U know ur value and those around u. If they choose not to see ur value in comparison to their so called friends, you don’t need them
+
+The clansy saga went from “abortion is not murder” to “murder is not murder” 🥀🥀🥀
+
+Is it sexist if a scholarship is only open to women?
+Yes. There is no two ways about this. Unless your definition of sexism only allows for discrimination against women, it is sexist.
+Sexism or gender discrimination is [prejudice](http://en.wikipedia.org/wiki/Prejudice "en.wikipedia.org") or [discrimination](http://en.wikipedia.org/wiki/Discrimination "en.wikipedia.org") based on a person's [sex or gender](http://en.wikipedia.org/wiki/Sex_and_gender "en.wikipedia.org"). Saying someone is not eligible for something because of their sex is sexism.
+Women achieve more bachelor's degrees than men.
+Women achieve more doctoral degrees than men.
+Clearly in the past there was a strong imbalance in favor of men, but this imbalance has shifted profoundly and dramatically in favor of women over the last decade. This is not to say there is not gender discrimination against women in other areas, but to claim that the class of people which outperforms all competition by literally every single measure is the oppressed class is contradictory to every kind of class analysis feminists have used in the history of the movement. It is therefore irresponsible to claim that scholarships favoring the dominating class of people are not discriminatory because the dominating class of people is "oppressed."
+That all having been said, this foundation has every right to be sexist in how it doles out its money. It's their money, and it is not inherently good or bad for someone to favor a group of people in how they use their money. But it is also everyone else's right to think that favoring one group of people over another for an arbitrary reason like the sex they were born as is unethical.
+
+Society does not care about men. Realize that society needs to keep making more people ( babies ) or it will cease to exist. Everything is designed to keep the babies coming and the women healthy so they can produce more  
+babies. Of course the kids are eventually sent to school so they can create "jobs" for female teachers who will of course treat the boys fairly and equally ( oh yeah - that will happen ) ... In every country - men have their time - they fight the wars to gain the territory and get society established - then they are consigned to the scrap heap of history - society's mistreatment of men is evident everywhere - in every developed country - women have much longer life expectancies - mostly because they are not expected or required to do any type of work that might be hazardous - shelters for homeless or battered men are extremely rare or nonexistent and diseases primarily affecting men are generally ignored or receive barely fractions of the funds devoted to women's healthcare. In any healthcare or pension system the people who contribute the least and receive the most benefits are women ( generally on the order of 80% of the benefits for 20% or less of the contributions ) . I have known many women who never worked more then a few years over their entire working life but any man who tried that would have starved to death long ago. Yep - I studied sociology in university - it can be a real eye-opener if you look beyond the mass media depictions of women.
+
+Thank you for what is an excellent answer. The vast majority of empowerment programs, gender exclusive funds like Scholarships/ grants and favor women. It is true men also pay the majority for these programs. For several decades about 57% of college students have been women but society refuses to address it. They’d rather spend billions on “initiatives” aimed at empowering women in specific Academic fields such as Science, Technology, History, Law etc. Fields that men are underrepresented in are never addressed.
+Men are encouraged to be Soldiers who are draft eligible and women arent. They are also the ones expected to do the dangerous jobs in society like working in Construction, nuclear plants, mining etc. Perhaps the worst part, in my opinion, is that society only acknowledges gender differences when its convenient. For example, society points out how men&women should have different physical requirements due to different physical characteristics. but research shows both also have differeent maturation processes. for example, girls tend to develop verbal/communication skills earlier while boys learn visual and analytical skills first. Girls tend to be more sedentary and relaxed at an earlier age, boys tend to be more hyperactive. But school early on focuses overwhelmingly on the skills boys develop later rather than earlier. Only acknowledge gender differences when it helps Women.
+
+Others have argued that it is not sexism on the grounds that it would only be sexist in an equal system. That is a different definition, but let's go with it.
+
+Academically, women outperform men by every metric. They achieve higher average GPAs in high school.
+
+most people get in a relationship to avoid boredom and loneliness, then build a whole narrative around their supposed “love” story. Or it’s physical attraction in disguise.
+Most romantic relationships fail for a reason, while friendships usually don’t. So I’d say : focus on developing real connections with people, not on the label “romance” or “love”.
+
+The gender disparity in elementary school plays a HUGE part. It was clear for me very early on that girls are favored for absolutely everything. Boys are constantly punished as a group, and verbally told they are worse from a very young age. Not to mention that girls are graded better for the same work, and then that is used to justify their discrimination. This is all in a critical phase of boys development, where it becomes clear to them that why should they even bother trying if the system is rigged against them. That then explains the behavior that you see in later years. It’s really, really sad
+
+Man insults/blames women : misogyny
+Woman insults/blames man : just a dumb person
+If misandrist women are just "bad people", then misogynist men are also bad people that simply need to be avoided. One is treated like a disease while the other is justified beyond reason. 
+Don't look for validation from these condescending female-domination lovers. Just don't. Don't even ask for their opinion, don't get interested.
+
+If it's not a yes, it's a no.
+
+DO NOT FALL for it if a debater is making you feel the urgency to answer their questions or the need to prove yourself to them. Always have them as pathetic losers who are trying to victimize themselves or their allies. Don't even bother asking if they don't answer yours first. Ask a very simple mathematical question and if they respond with follow-up questions/points having ignored your initial test question, DON'T FALL for it and try to respond to their baits. Give a few chances for them to respond and if they keep doing red herrings or they answer but they follow it up with ANY extra unnecessary information, ask for a clean direct answer for the final time, otherwise don't even bother explaining, just wave goodbye and say you're no longer participating since they can't even answer a simple test question. Treat those effeminate losers like an annoying bitch, in a condescending tone, reject their insults & always prioritie your unanswered questions/arguments...or better yet ghost them irl & virtually too. Stand your ground and keep to your original question. If they try to move on, keep insisting. Otherwise end the debate and let them know how incapable they are for not being able to answer a simple yes or no question directly without follow up bs. If you notice a manipulator hasn't answered of your previous questions fully, directly, clearly without follow up comments, or not at all...keep insisting. Do not fall for it and never keep trying to prove yourself to them. Always always always keep asking yourself if you have anything to prove to the loser in front of you. If there's even the smallest bait that makes you wanna prove yourself, don't fall for it. Give a delay of a 1-3 seconds too to each andwer
+
+Most feminists claim they want equality. In reality, they just want equality on their terms, not on equal terms...and exclusively on the issues that affect THEM. Never have we seen feminism help men in any way whatsoever.
+
+Feminism doesn't imagine an equal utopia. It imagines a matriarchal utopia on female's terms made to exploit men for their fantasies & pleasure...and the men conditioned to accept whatever crumbs are left and find happiness in serving...Using men in the transformation itself too btw.
+This sounds all too familiar...OH WAIT...it's literally patriarchy but with a pink color and better funding from campaigners lol. They'll essentially internalize male-inferiority and female-entitlement into young boys
+
+Funny how feminists will instantly mock you for being a "baby" due to only a certain % of them being insufferable entitled misandrist girls but then brag about their entire mission being bringing down the illusionary "patriarchy" along with the single digit % of men who actually hate women...
+
+Modern feminism is all about giving more and more privileges to society with the sole scope of leaving men out. And it's all under the guise of made-up victimhood and using historical sexism to guilt-trip society into accepting obviously unfair bs
+
+One side is shamed into tolerating and tolerating
+While the other is empowered into being entitled, intolerant, demanding & proud of previleges
+
+Gynocentrism : a dominant, central, or exclusive focus on women, their perspectives, their needs, their desires, their pleasure. 
+Only after they're fully satisfied (never) is there (and if) even consideration for the male side, which never even reaches the same attention.
+
+If anyone insults u, just ask urself if u asked them at all. Let them know that you didn't ask for their opinion on your character.
+Before giving out any reaction, check if the person causing it is actually helping you, if he is simply trying to show authority or if he avoids accountability by mocking you.
+
+"my case is more important"
+"i'm more important"
+"i'm more important"
+"i'm more important"
+is the new language of women, feminists & their soy-boy effeminate male matriarchy warriors
+
+Why is modern feminism romanticizing service & unreciprocated efforts to women 😭.
+Even the efforts that ARE to be reciprocated, they're tailored to cause the least inconvenience possible for the lady lol
+
+Imagine a society that trains women what NOT to do for another man and what expectations to keep...while teaching boys everything that has to be done for women, and somehow find happiness in unreciprocated efforts...while being told holding expectations is being shallow & misogynist...
+oh wait...it's the one we're living in 😭
+
+Feminism is acknowledging social injustice and only spreading awareness when it affects women. Feminism will always take away credit from male success, refuse accountability for female failure and always victimize themselves while men's suffering is downplayed for fun. Addy Lamar never invented wifi, even her work was based on another MAN's patent but the ladies won't skip any opportunities to slide in a woman's smallest contributions. Pretty privilege in men is considered natural selection whereas the moment women are affected by it it suddenly becomes an issue that needs fixing, arising from a supposed patriarchy and whatever invisible forces keep them back. But god forbid a man expresses frustration...then it's his fault or "the system he set up" at fault. "Just go to therapy", yeah touche : "just go to a gyno" then if you bitch abt your monthly aches.
+
+You should always believe in second chances, but that doesn't mean the past has to be forgotten
+
+Any woman over 30 is most likely settling. So keep it a conditional deal without letting emotions lead you to believe in love.
+
+You having to tell your needs means they're being dismissed
+
+People will dismiss you and deprive you of your needs, up until they find you useful in fulfilling theirs & take advantage of your desperation. Only then, after being fully satisfied will they do the bare minimum for your satisfaction
+
+Traditionally, men made the first move because women were basically property. Through most of human history, men purchased a wife from her father, to use her to make heirs.
+Women didn’t approach men for the same reason that when you need a toaster, toasters don’t approach you. You go out to purchase property, you don’t wait for property to come to you.
+Nowadays, in places that recognize that women are actually people, women do approach men. Throughout my life, I’d say I’ve approached my lovers about 60% of the time, and they approached me about 40% of the time.
+But here’s the thing:
+If you want women to approach you, you have to be interesting. Look in the mirror and ask yourself, “why would a woman pproach me instead of the guy standing next to me? What is interesting about me?”
+
+Under no circumstances forget what's in your control
+
+All I know is this : sympathy and recognition only starts when you're a female.
+
+"it's pushing back feminism a hundred years" 
+-feminists when a woman has the slightest lack of assertive, dominative & bitchy attitude. That is WITH the woman being included...if a woman isn't at the center of attention it's already proof of discrimination & patriarchal tendencies according to them.
+I bet man-hating, the Clancy saga, all the false accusations & statistics have done a bigger damage to feminism than any fictional or real female character portraying herself as anything other than an annoying entitled girl boss
+
+Do not let them use weaponized ignorance
+
+it was never about that. its just a backwards moralized justification for a person's hate which they will not abandon. they don't actually believe in patriarchy or anything they're saying they just believe all hardship in their life has come from men and they want revenge, and they will use pseudotheory to justify it.
+
+You really love your strawmen don't you? I'm not a conservative. My position on abortion leans in the other extreme. I have vastly different moral positions from what you seem to imagine. But my objecting to vapid pointless slogans seems to be enough for you to throw me in the same basket as religious conservatives with which I have little in common. Is your worldview truly so narrow?
+I don't see how anyone who believes in my body my choice can stand to defend conscription. We can't force someone to donate blood even in an emergency. Dead people's organs aren't harvested without consent. Women are not forced to carry children to combat a decline in birth rates. But sending men to war against their will, sure. It's bullshit.
+
+"Let me bring out experimental evidence that hasn't even reached the public eye to downplay your issue and make it look half-solved and then act like mine is still the bigger problem."
+
+"Well fight for your issues then." Says that while actively trying her best to downplay and fight against the very issues men are pointing out.
+
+Girls do actually like nice guys, but only if the guy is nice to her and mean to everyone else.
+
+-century old issues that affect men
+- starts affecting women
+-WOMEN'S HEALTH & BODIES ARE IGNORED & OPPRESSED BY THE PATRIARCHY!!!
+- fixes it only for women and acts like they were the only victims
+
+- Promise men a fair future
+- Use them for your selfish desires
+- Push them to the limits with obvious bs
+- Betray them & discard them
+- Blame them for reacting in emotional outburst
+- Refuse to elaborate on the root causes
+- Make it seem like men are the problem
+- Make it an entire movement
+- Make the cycle even more gynocentric for future generations
+
+When you cant face the lion, or at least the loser pretending to be the lion, you redirect the urge to others.
+
+"Imagine wasting 9 months only for your boy to say that women deserve more pain & periods"
+You gotta have said some horrendous takes for a man to even consider saying such things bro.
+Either way, this behavior only hurts feelings, it doesn't actively kill you in any way according to your own standards
+
+Anyone combatitive who overly tries to show attitude & spine, deep down is just a miserable insecure weak loser (especially feminists). Stay unfazed, calm & stand your ground without giving ANY explanation.
+
+- women failing at certain sectors
+"EQUALITY! We are getting discriminated by invisible forces!"
+- what's your proof 
+And the proof that they give is the failing itself.
+Shouting and shouting like a loser on her period...
+
+The bar is below hell. And it's only dropping further for the female crowd, while men are taught in increasingly deeper details how to treat a woman, while the only thing spreading to girls is expectations & how to use a man, not even how to treat him anymore
+
+Deep down, they know they have it easier. That's why they have to scream like crying bitches to finally get attention. And it seems to be working
+
+"You don't know what it's like"
+"You have no say on it"
+Finally feel what it's like when others refuse to understand your perspective?
+
+"men"
+"Always a man"
+"Patriarchy"
+If you hear these words even once from women, dump immediately 🚩
+
+No amount of guilt-tripping should stop you from ever getting equal treatment
+
+i see racism and sexism are perfectly acceptable when paired with views people want to hear
+
+Women are taught entitlement & expectations 
+Men are taught guilt & servitude.
+Wait... I've heard this one before...isn't this the same script women were conditioned to be okay with for centuries?
+
+So if she is super quiet afterwards and gets all sleepy, don’t worry, you didn’t bore her, she just had a really good time. She’ll show you later how good it was by reciprocation. And if she doesn’t, she’s an asshole and you should leave him immediately.
+
+The ‘funny’ thing is women only care about clean, air conditioned office, high paying equality. They have zero concern for the gender imbalances in brick-laying, oil rig workers, ditch digging, sewer workers, garbage disposal and more.  
+Funny that… under no circuimstance do western women have it harder.
+
+- It’s funny you’ll hear feminist say healthcare is for men. If you know anything about feminists, you’ll realise everything they say is a lie and the opposite
+
+- It's very simple. The feminist agenda is to diminish male issues and to have as much focus, and funding, as possible on female issues. The way it's phrased is that female issues are a problem for society to solve because of the "debt" owed to women, while male issues are the result of personal failings, in spite of privilege. It's the same in a lot of areas of society, in health, both physical and mental, education, the labour market and the justice system, to name a few....
+
+Feminism only really exists in air-conditioned offices & loads gynocentric framworks made to boost women to unearned credit.
+
+feminism was actually created by a satanic woman, and was funded by the Rockefellers to lower fertility rate. It’s sold the women as “freedom” but it’s actually just control. Forced marriages were not an issue in America that was other countries and their religious beliefs such as Islam which actually oppresses their women. (Has nothing to do with feminism) we’re talking about America right now; Again if you don’t want to get married that’s okay, but it’s marketed to women that it’s an “achievement” to be independent and support yourself financially and have no husband, no children, and be alone and “happy” which is unrealistic in this economy (all planned btw) which is why they want to push that propaganda on women that it’s somehow empowering to not want to be a mom, and a wife. Also just a question, if your husband loves you and supports you, why don’t you want to cook for him and relax at home?
+
+I think we should stop saying “not all men” and start saying “not most men, and not always a man”.
+
+“In nonreciprocal intimate partner violence relationships, women were the perpetrators in more than 70% of the cases” (Whitaker et al., 2007, https://pmc.ncbi.nlm.nih.gov/articles/PMC1854883/). This finding comes from self reported data in the National Longitudinal Study of Adolescent Health, where respondents self-reported both their own perpetration and their partner’s across 18,761 heterosexual relationships. Whatever one’s broader views, this particular statistic is derived from participants’ own accounts, not from third party assumptions. Plainly said, we are to believe all women, this is what they said, so believe them.
+
+Its amazing when you think the most dangerous place for a baby to be in its mother's body and then when it's born in its mother's arms, but it's the men and boys who need to change, who are educating the Boys? Boys have more respect for girls and women than women or girls have for boys, and the further a girl goes through education the more severe her behavior becomes towards boys and men, the statistics are out there and fair play to you guys you bring it to the forefront.
+
+No issue with anti-mysogyny lessons, but 100% agree that boys need to learn to love themselves to and girls also need to be taught that its not ok to treat men however you can get away with. There def needs to be both.
+
+[](https://www.instagram.com/p/DfUqEMhIu_M/c/18672536782032690/)
+
+A historically popular saying (which is still being used) is “Real men don’t hit women”, which in itself is sexist because they perpetuate the sexist notion of “real men” and “boys” placing negative connotation on both. “Feminists” will add negativity to the saying with “Men are misogynists because they hit women anyway”.  
+Then if you tell women “Teach women not to hit men”, they’ll rebut with “Women aren’t violent” or “Women can’t harm men”. Both of which are also sexist notions: internalized misogyny and misandry. The irony is, women can physically assault men at anytime without any repercussions, and it is pervasively seen as a joke, or with people viewing the woman as the victim, despite men being the ACTUAL victims.  
+Education needs to tackle both misogyny and misandry. Society only believes the former is relevant, while the latter is not taken seriously despite it also being systemic.
+
+this is the start of the misandry pipeline where the end goal is the "women are wonderful" effect. A change of that narrative destroys the whole thing.
+
+To be honest, the way big algorithms control girls these days, any hint of bs misandric takes or takes that victimize women can be an indication of the typical modern loser behavior. Incels use the word "foid" for these women, but I think they're just miserable people who cannot be helped. Definetely wouldn't dare date them, casual friendships are go-to for these types of girls.
+
+your utter confidence while conveying genuine misinformation is borderline insulting.
+
+Also your attempts at character assassination fall flat. I am not even slightly religious. Nor do I have any interest in seeing women trapped to deal with a child they didn't want. That is the very reason why I am acknowledging that their is a need for a better strategy that "bodily autonomy". Not every criticism is from enemies. Most grown ups understand this.
+
+I support feminist movements and the fight for equal rights. But let's be honest. Outside of feminism very civil rights movement required a militant wing. Black rights, gay rights, indigenous rights. There needed to be organised armed resistance. The same has not been required for feminism. One of the greatest feminist acts was when women decided to stop working and were given rights. For nearly every other oppressed group, the use of organised violence was a requirement.
+So sorry, if I don't consider you calling for men to put their lives on the line to earn rights when by and large the feminist movement has not been reliant on women actively choosing death over oppression.
+Again, women have had to fight for their rights. But the level of violence they have faced in opposition is not comparable at all amd that is my point.
+You are right, and I must emphasise this, you are right. Men must fight for their rights, and if they value it they will fight. The draft is not talked about enough as a form of oppression and that is the point of this post.
+Awareness of this issue is low because it has been normalised. I want to demoralised this idea before starting any fights. But the stakes are far higher than the ones women have to fight in getting rights and until feminism develops a militant wing, I can't take feminist arguing that men arent fighting hard enough, seriously enough.
+
+If it is my body, my choice for pregnant women, then I don't see any argument why it would not be my body, my choice to not go to war
+In both cases you are not allowing a third party to dictate what you do with your body
+No need to go into hypotheticals, both situations are morally equivalent, just as you should not be forced to donate a liver, or save the chained violinist, you are not forced to give birth or give your body to war
+
 We live in a world full of fake people who work fake jobs to make fake made-up money with fake school systems and fake political parties led by fake politicians with fake media and fake entertainment all to distract us from how fake everything is
 
 True gender equality cannot mean erasing one half of the population from the conversation or treating male challenges and deaths as less urgent.
 
 sticks and stones may break my bones, but there will always be something to offend a feminist.
+
+"men commit 90% of all crime" uhhh no they don't. I don't remember 1/2 of the population commiting atrocities. And i sure don't remember them being the sore entitled losers modern women have become.
+
+We already have a culture that cheers for and argues for the rights of mothers to eliminate their children. The differ
+
+If we can justify killing of pre born there is no surprise for post born, the reasoning: wellbeing of mother, the children isn't a priority, husbands have no say.
+
+is you're idea of "getting away with rape" is not being able to destroy a man's life for an obviously false claim? Not immediately believing women without facts?
+
+"Are you guys for real?" Attempt to discredit and implicate an entire category of people who disagree with feminism by false incredulity. Here's a piece of genuine incredulity for you: are you gals for real?
+
+society is full of idiots that don't understand how to apply labels and only see a weapon to silence people that disagree with them.
 
 The amount of assaults committed by women that aren't reported , massive numbers as men either brush it as they are taught to do by society, or embarrassed to report
 

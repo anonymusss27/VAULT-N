@@ -1,0 +1,8 @@
+[gd_scene format=3 uid="uid://v2ekfoggoaor"]
+
+[node name="Lobby" type="Node2D" unique_id=1066411290]
+
+[node name="Sprite2D" type="Sprite2D" parent="." unique_id=1426107036]
+
+[node name="Monza3" type="Sprite2D" parent="." unique_id=991682395]
+position = Vector2(-148, 500)

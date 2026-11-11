@@ -7,6 +7,8 @@ The effectiveness can vary across different levels of surveilance. If followed c
 
 Digital Security
 
+Toolset : EMP Generator
+
 ### Internet
 
 ### Uncategorized
@@ -14,6 +16,8 @@ Digital Security
 USB Data Blocker
 
 Prevent wifi sensing
+
+Treat Arsenic Poisoning : chelation therapy : succimer(DMSA), DMPS or dimercaprol
 
 window resolution is enough to finger-print you. Tor standardizes 1080p resolution & aspect ratio because it is most common. However, once you resize your window, the resoltion becomes unique to you and enough to identify you.
 
